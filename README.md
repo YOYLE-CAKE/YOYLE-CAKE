@@ -26,6 +26,7 @@ wilbursoot supporters, dteam antis, basic dni, and tccoal fans, simple dni ^_^
 </p>
 <p align="center">
 keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot even when im playing the pixel pony game!!!! i sometiems dont talk bceasue im daydreaming/busyyyy ^_^
+    also pls dont copy my skins!!!! dnc HEAVILY all of my skins are  orignal, ask to get ispo!
 </p>
 <p align="center">
     <img width="200" src="https://files.catbox.moe/0akcys.jpg" alt="Material Bread logo">
