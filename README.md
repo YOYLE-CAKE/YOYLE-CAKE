@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=DREAMXANAX&color=blue)
+ignore the profile vievws im jst testing it
 <p align="center">
     <img width="200" src="https://files.catbox.moe/gcbea6.jpg" alt="Material Bread logo">
 </p>
