@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=DREAMXANAX&color=blue)
 ignore the profile vievws im jst testing it
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/gcbea6.jpg" alt="Material Bread logo">
+    <img width="200" src="https://files.catbox.moe/hdgr63.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
 hi my name is adel, im 14 and i come all the way from southeast asia!, this is jst the basic info about me so u dont have to open more links :), im tfem bisexual, and i use she/any prounouns! but no masculine terms plss soz \ >m< /! . anywasy enough about that
@@ -12,10 +12,7 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 
 </p>
  <p align="center">
-    <img width="200" src="https://files.catbox.moe/m1il4l.jpg" alt="Material Bread logo">
-</p>
-<p align="center">
-I
+    <img width="200" src="https://files.catbox.moe/q0p7i2.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
 hes so meee
@@ -31,7 +28,7 @@ keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot 
     also pls dont copy my skins!!!! dnc HEAVILY all of my skins are  orignal, ask to get ispo!
 </p>
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/0akcys.jpg" alt="Material Bread logo">
+    <img width="3000" src="https://files.catbox.moe/ee3ms6.png" alt="Material Bread logo">
 </p>
 <p align="center">
 special fanks 2 berry and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ^_^
