@@ -1,7 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=DREAMXANAX&color=blue)
 ignore the profile vievws im jst testing it
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/hdgr63.jpg" alt="Material Bread logo">
+    <img width="200" src="https://files.catbox.moe/7384qk.jpg" alt="Material Bread logo">
+</p>
+<p align="center">
+what diabolical genre of fanart is this
 </p>
 <p align="center">
 hi my name is adel, im 14 and i come all the way from southeast asia!, this is jst the basic info about me so u dont have to open more links :), im tfem bisexual, and i use she/any prounouns! but no masculine terms plss soz \ >m< /! . anywasy enough about that
@@ -12,7 +15,7 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 
 </p>
  <p align="center">
-    <img width="200" src="https://files.catbox.moe/q0p7i2.jpg" alt="Material Bread logo">
+    <img width="200" src="https://files.catbox.moe/ypt3ge.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
 hes so meee
