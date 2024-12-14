@@ -7,7 +7,7 @@ ignore the profile vievws im jst testing it
 what diabolical genre of fanart is this
 </p>
 <p align="center">
-hi my name is adel, im 14 and i come all the way from southeast asia!, this is jst the basic info about me so u dont have to open more links :), im tfem bisexual, and i use she/any prounouns! but no masculine terms plss soz \ >m< /! . anywasy enough about that
+hi my name is adel, im 14 and i come all the way from southeast asia!, this is jst the basic info about me so u dont have to open more links :), im tfem lesbian, and i use she/any prounouns! but no masculine terms plss soz \ >m< /! . anywasy enough about that
 </p> 
  <p align="center">
  like pizza halloween, dteam etc more intrests are at my rentry link!, but if ur still lazy 2 open that ill just explain it here i guess....... sigh! lazyyyyy
