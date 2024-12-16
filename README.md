@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=DREAMXANAX&color=blue)
-ignore the profile vievws im jst testing it
+<- since november 27 2024!!
 <p align="center">
     <img width="200" src="https://files.catbox.moe/7384qk.jpg" alt="Material Bread logo">
 </p>
