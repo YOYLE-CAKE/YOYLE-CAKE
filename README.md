@@ -24,7 +24,7 @@ hes so meee
 dnis
 </p>
 <p align="center">
-wilbursoot supporters, dteam antis, basic dni, and tccoal fans, simple dni ^_^
+    no fandom dni, proshippers dni, wss dni ^_^
 </p>
 <p align="center">
 keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot even when im playing the pixel pony game!!!! i sometiems dont talk bceasue im daydreaming/busyyyy ^_^
