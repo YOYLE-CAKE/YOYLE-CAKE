@@ -15,10 +15,9 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 
 </p>
  <p align="center">
-    <img width="200" src="https://files.catbox.moe/ypt3ge.jpg" alt="Material Bread logo">
+    <img width="2000" src="https://files.catbox.moe/rab74p.png" alt="Material Bread logo">
 </p>
 <p align="center">
-hes so meee
 </p>
 <p align="center">
 dnis
