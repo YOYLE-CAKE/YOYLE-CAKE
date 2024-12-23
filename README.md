@@ -23,7 +23,8 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 dnis
 </p>
 <p align="center">
-    basic dnu, wss ^_^
+    basic dn1, wss ^_^
+    also, if u make fun any of my intrests (execpt 4 drmteam) please big fat DNI (im looking at u wife)
 </p>
 <p align="center">
 keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot even when im playing the pixel pony game!!!! i sometiems dont talk bceasue im daydreaming/busyyyy ^_^
