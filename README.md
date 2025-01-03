@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=DREAMXANAX&color=green)
+![](https://komarev.com/ghpvc/?username=smokedgoodies&color=green)
 <- since november 27 2024!!
 <p align="center">
     <img width="200" src="https://files.catbox.moe/do76zk.jpg" alt="Material Bread logo">
