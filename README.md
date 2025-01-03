@@ -23,16 +23,15 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 dnis
 </p>
 <p align="center">
-    basic dn1, wss 
-    also, if u make fun any of my intrests (execpt 4 drmteam) please big fat DNI (im looking at u wife)
+    basic dni, wss , thats all tbf
 </p>
 <p align="center">
 keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot even when im playing the pixel pony game!!!! i sometiems dont talk bceasue im daydreaming/busyyyy ^_^
-    also pls dont copy my skins!!!! dnc HEAVILY all of my skins are  orignal, ask to get ispo!
+    also pls dont copy my skins!!!! dnc HEAVILY all of my skins are  orignal, ask to get ispo! i also dont care if u are a dreamteam anti and ur interacting, dni goes both ways buddy!!
 </p>
 <p align="center">
     <img width="3000" src="https://files.catbox.moe/py5c5u.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
-special fanks 2 berry and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ^_^
+special fanks 2 berry and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ,';p
 </p>
