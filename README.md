@@ -32,5 +32,5 @@ keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot 
     <img width="3000" src="https://files.catbox.moe/py5c5u.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
-special fanks 2 berry and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ,';p
+special fanks 2 berry and clay and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ,';p
 </p>
