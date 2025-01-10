@@ -10,7 +10,7 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 </p> 
  <p align="center">
  like pizza halloween, dteam etc more intrests are at my rentry link!, but if ur still lazy 2 open that ill just explain it here i guess....... sigh! lazyyyyy
-  i like, co09(class of 09), dteam,ut/dt(undertale/deltarune0 tyler the creator, TV girl, crk, guilty gear, skull girls, dandys world, utpr, steven universe/others! i also like gravity falls but the intreetsrs has died down, frownnnsss
+  i like,, dteam,ut/dt(undertale/deltarune) tyler the creator, TV girl, crk, guilty gear, skull girls, dandys world, utpr, steven universe, squidgame season 1 and 2, and a buncha others. my biggest hyperfixaton is sg2 and dreamteam!
 
 </p>
  <p align="center">
