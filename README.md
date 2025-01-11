@@ -1,9 +1,8 @@
 
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/do76zk.jpg" alt="Material Bread logo">
+    <img width="420" src="https://files.catbox.moe/j05mmy.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
-this is me btw if u even care
 </p>
 <p align="center">
 hi my name is adel, im 14 and i come all the way from southeast asia!, this is jst the basic info about me so u dont have to open more links :), im tfem pansexual, and i use she/any prounouns! but no masculine terms plss soz \ >m< /! . anywasy enough about that
@@ -29,7 +28,7 @@ keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot 
     also pls dont copy my skins!!!! dnc HEAVILY all of my skins are  orignal, ask to get ispo! i also dont care if u are a dreamteam anti and ur interacting, dni goes both ways buddy!!
 </p>
 <p align="center">
-    <img width="3000" src="https://files.catbox.moe/py5c5u.jpg" alt="Material Bread logo">
+    <img width="3000" src="https://files.catbox.moe/o4eh3s.jpg" alt="Material Bread logo">
 </p>
 <p align="center">
 special fanks 2 berry and clay and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ,';p
