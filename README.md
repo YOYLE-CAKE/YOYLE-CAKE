@@ -29,7 +29,7 @@ keep in mind that i have adhd,md, i getvery nervous easily, and i daydream alot 
     also pls dont copy my skins!!!! dnc HEAVILY all of my skins are  orignal, ask to get ispo! i also dont care if u are a dreamteam anti and ur interacting, dni goes both ways buddy!!
 </p>
 <p align="center">
-    <img width="3000" src="https://files.catbox.moe/o4eh3s.jpg" alt="Material Bread logo">
+    <img width="450" src="https://media1.tenor.com/m/aPkbXJolus8AAAAd/muchluvgnf-gnf.gif" alt="Material Bread logo">
 </p>
 <p align="center">
 special fanks 2 jackie, mia, aulia, and clay and my other oomfs lul, u guys r so cool and cool, and so cool ok bye now ,';p
