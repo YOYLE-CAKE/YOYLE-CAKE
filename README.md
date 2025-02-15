@@ -1,7 +1,7 @@
 ![](https://camo.githubusercontent.com/e5970ff31233467b6196dc670259c9063b9089764c57ef617b2f6f08b733652e/68747470733a2f2f696d672e736869656c64732e696f2f7374617469632f76313f6c6162656c3d50726f66696c652b7669657773266d6573736167653d3132333435363738393026636f6c6f723d303037656336267374796c653d666f722d7468652d6261646765)
 profile views is jst a joke i do NOT have 12 million something views :sob:
 <p align="center">
-    <img width="420" src="https://files.catbox.moe/j05mmy.jpg" alt="Material Bread logo">
+    <img width="420" src="https://media1.tenor.com/m/KEXb-AfIH5cAAAAd/drmgif.gif" alt="Material Bread logo">
 </p>
 <p align="center">
 </p>
@@ -14,7 +14,7 @@ hi my name is adel, im 14 and i come all the way from southeast asia!, this is j
 
 </p>
  <p align="center">
-    <img width="1400" src="https://files.catbox.moe/yhn4yi.png" alt="Material Bread logo">
+<img width="450" src="https://media1.tenor.com/m/OaPANQV3_SQAAAAd/sapnap-sapnap-pray.gif" alt="Material Bread logo">
 </p>
 <p align="center">
 </p>
