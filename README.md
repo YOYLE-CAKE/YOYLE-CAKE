@@ -1,6 +1,8 @@
 
 
-https://github.com/user-attachments/assets/eb25bdf7-f7da-486a-835c-2b07e925fea6
+<p align="center">
+  <img width="460" height="300" src="https://files.catbox.moe/l7i4cl.webp">
+</p>
 
 
 
