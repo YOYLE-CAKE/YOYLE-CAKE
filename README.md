@@ -1,6 +1,9 @@
 
 
-https://github.com/user-attachments/assets/bf4d9ebb-068c-4eb2-bed2-4501b29a924c
+<p align="center">
+  <img width="460" height="300" src="https://files.catbox.moe/q39pka.jpg">
+</p>
+
 
 
 
